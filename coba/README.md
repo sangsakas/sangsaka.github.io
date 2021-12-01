@@ -1,1 +1,0 @@
-# sangsaka.github.io
